@@ -1,0 +1,2 @@
+Today was a very interesting day. I didn't turn in some of my homework with is disappointing, but is happens.
+Todays lab was that we get a random partner, which was not as bad as I though it would be. We were able to complete all the work but at the end while we were turning in the assignment, I didn't think that we had done all the things that we need to do complete the assignment, but like I said i'm not sure I just hope that we did all the things that we needed to do.
