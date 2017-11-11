@@ -1,0 +1,1 @@
+Today was a lot easier and slow then the last 2 days. Which I think was done to give a bit of a breather for next week, which is going to very hard apparently which makes me a bit scared but we'll just have to wait till next week and see.
