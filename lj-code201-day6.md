@@ -1,0 +1,1 @@
+Today was the first day of the HARD week and it didn't disappoint. I had a lot of trouble with the assignment and had to get a lot of help from a TA to get to where I am, and I'm still not finished with the assignment. I hope I can find out what to do soon because I don't want to get behind, because if I get behind I probably wont be able to pass this class. 
